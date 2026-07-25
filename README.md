@@ -56,8 +56,11 @@ Mobile responsive experience
 Optimized performance
 Enhanced customer experience
 
-Developer
+Developed & Designed by 
 
 Abhay Verma
 
 Freelance Web Developer
+Explore - https://www.freelancer.in/u/Lifecare2951
+
+
